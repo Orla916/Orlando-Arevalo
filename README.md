@@ -1,2 +1,0 @@
-# Orlando-Arevalo
-Cirujano bariatrico
